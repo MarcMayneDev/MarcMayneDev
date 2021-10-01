@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @MarcMayneDev
+- 👀 I’m interested in eSports & Translation
+- 🌱 I’m currently learning Web Development
+- 📫 How to reach me mmartinezm81@cepnet.net or marcmartinez2001@gmail.com
